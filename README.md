@@ -7,6 +7,4 @@
 - ⚡ Fun fact: Always ready to learn
 
 <!---
-Ayomiddataprincess/Ayomiddataprincess is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Ayomiddataprincess/Ayomiddataprincess is a ✨finance professional with a passion for harnessing data to drive informed decision-making. She has background in accounting, investment banking, and data analysis equips her with a unique perspective on financial modeling, risk assessment, business analysis and strategic planning. She has worked for more than 5 years as an Analyst which ranges from financial. ✨
